@@ -1,0 +1,2 @@
+# Newbie-
+Long day 
